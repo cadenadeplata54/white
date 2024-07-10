@@ -1,0 +1,2 @@
+# white
+solo ads terra
